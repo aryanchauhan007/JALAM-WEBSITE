@@ -10,3 +10,10 @@ Mentioning all the UN related content, events, conferences helding all over the 
 
 
 drive link for the ppt : https://docs.google.com/presentation/d/1kpK4GpkLPdnFi2WEKfiERZJoZrMjjGj2/edit?usp=share_link&ouid=111276872259407768219&rtpof=true&sd=true
+
+
+TEAM MEMBERS
+1. KUSH PRAKHAR
+2.DIKSHA NAUTIYAL
+3.VAISHALI MEHTA
+4.ARYAN CHAUHAN
