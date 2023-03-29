@@ -14,6 +14,9 @@ drive link for the ppt : https://docs.google.com/presentation/d/1kpK4GpkLPdnFi2W
 
 TEAM MEMBERS
 1. KUSH PRAKHAR
-2.DIKSHA NAUTIYAL
-3.VAISHALI MEHTA
-4.ARYAN CHAUHAN
+
+3.DIKSHA NAUTIYAL
+
+4.VAISHALI MEHTA
+
+5.ARYAN CHAUHAN
